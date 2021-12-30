@@ -7,7 +7,7 @@ _simple, minimal, ready to use_
 
 [https://knowledge.hubspot.com/resources/how-to-purchase-a-template](https://knowledge.hubspot.com/resources/how-to-purchase-a-template)
 
-[![Registrazione-schermo-2021-12-30-alle-22.19.09.gif](https://s10.gifyu.com/images/Registrazione-schermo-2021-12-30-alle-22.19.09.gif)](https://gifyu.com/image/SSUpA)
+[![Registrazione-schermo-2021-12-30-alle-22.19.09.md.gif](https://s10.gifyu.com/images/Registrazione-schermo-2021-12-30-alle-22.19.09.md.gif)](https://gifyu.com/image/SSUpA)
 
 ### Settings
 
